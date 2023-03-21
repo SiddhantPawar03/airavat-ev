@@ -1,1 +1,1 @@
-# Vidyut-EV
+# Decentralized-EV
