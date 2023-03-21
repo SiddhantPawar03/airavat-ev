@@ -1,1 +1,1 @@
-# airavat-ev
+# Vidyut-EV
